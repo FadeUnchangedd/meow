@@ -15,11 +15,7 @@
 
 
 
-
 (me and bro truuuuust)
-
-
-
 
 
 
